@@ -5,7 +5,7 @@ and here I share you what I am doing for it!
 
 **Monaco GP Week!**  
 //02.06.2026, 2:31pm//  
-This week in the Monaco GP in F1! How do
+This week is the Monaco GP in F1! How do
 you think will win?   
 
 **Hello and Welcome to my new Block!**  
