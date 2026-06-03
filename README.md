@@ -6,7 +6,8 @@ and here I share you what I am doing for it!
 **Monaco GP Week!**  
 //02.06.2026, 2:31pm//  
 This week is the Monaco GP in F1! How do
-you think will win?   
+you think will win and wich team?  
+
 
 **Hello and Welcome to my new Block!**  
 I want to be a Race engineer in F1 (like in the description)
