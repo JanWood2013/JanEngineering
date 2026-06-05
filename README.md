@@ -5,8 +5,8 @@ and here I share you what I am doing for it!
 
 **FIRST LEGO League Team**  
 //05.06.2026, 12:41pm//  
-I am part if a new FIRST LEGO League Team in Cologne (with guys from my school).  
-The next competition is probably in January next Year and there we'll see how good we actually are!  
+I am part of a new FIRST LEGO League Team in Cologne (with guys from my school).  
+The next competition is probably in January next year and there we'll see how good we actually are!  
 
 **FP1 and 2 Today**  
 //05.06.2026, 10:32am//  
