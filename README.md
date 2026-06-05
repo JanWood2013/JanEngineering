@@ -3,6 +3,15 @@
 I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 
+**New Project**  
+//05.06.2026, 6:07pm//
+A new project is at my repository 📲"Lap-time-analystics" avable! 
+With it you can calculate the ⏲️Delta time.  
+Of course you also can watch my other projects and write me what I could do better  
+or what project I could also do. 
+Have fun with it and the Monaco race weekend!  
+🔗GitHub: https://github.com/JanWood2013  
+
 **FIRST LEGO League Team**  
 //05.06.2026, 12:41pm//  
 I am part of a new 🤖FIRST LEGO League Team in Cologne (with guys from my school).  
