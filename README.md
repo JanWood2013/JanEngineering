@@ -12,7 +12,7 @@ The next competition is probably in
 **FP1 and 2 Today**  
 //05.06.2026, 10:32am//  
 Today is FP1 and FP2 in Monaco!  
-Who is watching?  
+Who is watching?  🛥️🏎️  
 
 **Monaco GP Week!**  
 //02.06.2026, 2:31pm//  
