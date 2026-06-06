@@ -3,6 +3,9 @@
 I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 
+**Monaco Qually today** 
+Who'll set pole? I am watching!🏎️  
+
 **New Project**  
 //05.06.2026, 6:07pm//  
 A new project is at my repository 📲"Lap-time-analystics" avable! 
