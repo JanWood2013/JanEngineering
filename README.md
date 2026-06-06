@@ -3,6 +3,8 @@
 I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 
+**Kimi Antonelli sets pole in Monaco!**  //06.06.2026, 5:11pm//  
+
 **Monaco Qually today**   
 //06.06.2016, 10:28am//  
 Who'll set pole? I am watching!🏎️  
