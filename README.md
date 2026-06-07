@@ -8,7 +8,7 @@ and here I share you what I am doing for it!
 //07.07.2026, 11:20am//  
 Charles Leclerc has finished the Qualliy in his country at 4th position.
 The track in Monaco is a track where it's very hard to overtake. 45,7 % of all races in Monaco were won from the pole position.  
-In front of Charles are Kimi Antonelli (Has a very big Self-confidence and aöso a very fast car) , Lewis Hamilton and Max Verstappen (And for him, Monaco is a very important race.) This are all very good drivers who defend very good (also the Engineers are very good).  
+In front of Charles are Kimi Antonelli (Has a very big Self-confidence and also a very fast car) , Lewis Hamilton and Max Verstappen (And for him, Monaco is a very important race.) This are all very good drivers who defend very good (also the Engineers are very good).  
 As a result, I think, Charles Leclerc's opportunities to win im Monaco are not so good (I am also sad).  
 But we can hope and I think he can get a place on the podium.  🏆🏎️🛥️
 
