@@ -5,7 +5,7 @@ and here I share you what I am doing for it!
 
 **Kimi Antonelli wins in Monaco!!**  
 //07.06.2026,5:55pm//  
-After a amazing race by Kimi, he wins in Monaco and he's the youngest ever Monaco GP winner!  
+After an incredible race by Kimi, he wins in Monaco and he's the youngest ever Monaco GP winner!  
 Very good job Kimi!  
 
 **Charles and the Monaco race**  
