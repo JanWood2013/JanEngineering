@@ -3,6 +3,9 @@
 I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 
+**Next up 📍Barcelona**  
+//08.06.2026, 3:38pm//  
+
 **Kimi Antonelli wins in Monaco!!**  
 //07.06.2026,5:55pm//  
 After an incredible race by Kimi, he wins in Monaco and he's the youngest ever Monaco GP winner!  
