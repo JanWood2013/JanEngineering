@@ -3,6 +3,11 @@
 I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it! 
 
+**🔢Math for F1**  
+//10.06.2026, 3:14pm//  
+At the moment I'm learning 💯Probability theory (for my self because we don't have this in school now I'm only in Year 7 in Germany).  
+This is a very important topic for F1🏎️ (Math in general) and I think: I'm always bored in math class (I don't want to be proud of my self but I'm too good) and I can use this time to do some stuff for F1 (Probability theory isn't the first topic I do from higer classes.  
+
 **Analysis of the Accident of Charles Leclerc and Lance Stroll in Monaco**  
 //09.06.2026,3:50pm//  
 Finde it in my new Repository 📲"GP Analysis"  
