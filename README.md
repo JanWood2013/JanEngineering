@@ -3,6 +3,11 @@
 I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it! 
 
+**Math grade 📝**  
+//11.06.2026, 1:42pm//  
+We got our Math class test back and I got a 1 (in Germany second best grade after 1+)! 🎉  
+I got the best grade in my class (Year 7, Germany)  
+
 **🔢Math for F1**  
 //10.06.2026, 3:14pm//  
 At the moment I'm learning 💯Probability theory (for my self because we don't have this in school now I'm only in Year 7 in Germany).  
