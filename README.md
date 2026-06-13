@@ -4,6 +4,10 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013  
 
+**George Russell takes pole in Barcelona!**  
+//13.06.2026, 5:37pm//  
+After a not so good Monaco weekend for him, he's back on pole position!🏁🏎️  
+
 **Qualli day in Barcelona!🏎️**  
 //13.06.2026, 10:36pm//  
 Who do you think will set pole?  
