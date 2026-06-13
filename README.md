@@ -4,6 +4,10 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013  
 
+**Qualli day in Barcelona!🏎️**  
+//13.06.2026, 10:36pm//  
+Who do you think'll set pole?  
+
 **Barcelona race weekend starts now!**  
 //12.06.2026, 2:11pm//  
 ⏭️Next up: FP1 and FP2!  
