@@ -6,7 +6,7 @@ and here I share you what I am doing for it!
 
 **Qualli day in Barcelona!🏎️**  
 //13.06.2026, 10:36pm//  
-Who do you think'll set pole?  
+Who do you think will set pole?  
 
 **Barcelona race weekend starts now!**  
 //12.06.2026, 2:11pm//  
