@@ -4,6 +4,11 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013  
 
+**Lewis Hamilton won in Barcelona**  
+//14.06.2026, 5:07pm//  
+Lewis Hamilton won for the first time in red!  
+ -And this first time is in Spain, Barcelona  
+
 **Race day in Barcelona & last day of 24h Le Mans!**  
 //14.06.2026,11:43am//  
 Barcelona race ➕ 24h Le Mans 🟰 best motorsport weekend this year! 🏁  
