@@ -4,7 +4,12 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013  
 
-**Lewis Hamilton won in Barcelona!🏆**  //07.06.2026,5:55pm//  
+**ℹ️Content deleted**  
+//14.06.2026, 6:06pm//  
+Sadly (and I don't know why) a few parts this block were deleted (from the monaco race until now).  
+Of course I am going to do this Block also in the future.  
+
+**Lewis Hamilton won in Barcelona!🏆**  //14.06.2026,5:55pm//  
 After an incredible race by Kimi, he wins in Monaco and he's the youngest ever Monaco GP winner!  
 Very good job Kimi!  
 
