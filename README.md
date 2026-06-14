@@ -4,6 +4,10 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013  
 
+**Race day in Barcelona & last day of 24h Le Mans!**  
+//14.06.2026,11:43am//  
+Barcelona race ➕ 24h Le Mans 🟰 best motorsport weekend this year! 🏁  
+
 **George Russell takes pole in Barcelona!**  
 //13.06.2026, 5:37pm//  
 After a not so good Monaco weekend for him, he's back on pole position!🏁🏎️  
