@@ -4,47 +4,7 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013  
 
-**Lewis Hamilton won in Barcelona**  
-//14.06.2026, 5:07pm//  
-Lewis Hamilton won for the first time in red!  
- -And this first time is in Spain, Barcelona  
-
-**Race day in Barcelona & last day of 24h Le Mans!**  
-//14.06.2026,11:43am//  
-Barcelona race ➕ 24h Le Mans 🟰 best motorsport weekend this year! 🏁  
-
-**George Russell takes pole in Barcelona!**  
-//13.06.2026, 5:37pm//  
-After a not so good Monaco weekend for him, he's back on pole position!🏁🏎️  
-
-**Qualli day in Barcelona!🏎️**  
-//13.06.2026, 10:36pm//  
-Who do you think will set pole?  
-
-**Barcelona race weekend starts now!**  
-//12.06.2026, 2:11pm//  
-⏭️Next up: FP1 and FP2!  
-
-**Math grade 📝**  
-//11.06.2026, 1:42pm//  
-We got our Math class test back and I got a 1 (in Germany second best grade after 1+)! 🎉  
-I got the best grade in my class (Year 7, Germany)  
-
-**🔢Math for F1**  
-//10.06.2026, 3:14pm//  
-At the moment I'm learning 💯Probability theory (for my self because we don't have this in school now I'm only in Year 7 in Germany).  
-This is a very important topic for F1🏎️ (Math in general) and I think: I'm always bored in math class (I don't want to be proud of my self but I'm too good) and I can use this time to do some stuff for F1 (Probability theory isn't the first topic I do from higher classes.)  
-
-**Analysis of the Accident of Charles Leclerc and Lance Stroll in Monaco**  
-//09.06.2026,3:50pm//  
-Finde it in my new Repository 📲"GP Analysis"  
-
-
-**Next up 📍Barcelona**  
-//08.06.2026, 3:38pm//  
-
-**Kimi Antonelli wins in Monaco!!**  
-//07.06.2026,5:55pm//  
+**Lewis Hamilton won in Barcelona!🏆**  //07.06.2026,5:55pm//  
 After an incredible race by Kimi, he wins in Monaco and he's the youngest ever Monaco GP winner!  
 Very good job Kimi!  
 
