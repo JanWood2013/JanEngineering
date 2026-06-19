@@ -4,6 +4,12 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013  
 
+**New Repository and project!**  
+//19.06.2026, 12:56am//  
+In this Repository I am goiung to explain F1 technology.  
+The first content is already online, so dint lose time:
+Read it and learn about **power steering**!  
+
 **ℹ️Content deleted**  
 //14.06.2026, 6:06pm//  
 Sadly (and I don't know why) a few parts this block were deleted (from the monaco race until now).  
