@@ -4,16 +4,16 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013  
 
-**School for F1**  
+**📚School for F1**  
 //19.06.2026, 12:57am//  
-I got a 2 (**second best grade** in Germany) for a analysis of a relationship between a mother and her childreen from a book (which calls "tschick" ->German book). The **school subject was German**.  
+I got a 2 (**second best grade** in Germany) for a analysis of a relationship between a mother and her childreen from a book (which calls "tschick" ->German book📖). The **school subject was German**.  
 I scored 49 of 65 points and this was the last exam in German for this school year.  
 
 **New Repository and project!**  
 //19.06.2026, 12:56am//  
 In this Repository I am goiung to explain F1 technology.  
-The first content is already online, so dint lose time:
-Read it and learn about **power steering**!  
+The first content is already online, so don't lose time:
+Read it and learn about **📲power steering**!  
 
 **ℹ️Content deleted**  
 //14.06.2026, 6:06pm//  
