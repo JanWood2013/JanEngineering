@@ -4,6 +4,10 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013  
 
+**New project soon🔜**  
+//23.06.2026, 4:35pm//  
+A new project will be here soon!👀  
+
 **📚School for F1**  
 //19.06.2026, 12:57am//  
 I got a 2 (**second best grade** in Germany) for a analysis of a relationship between a mother and her childreen from a book (which calls "tschick" ->German book📖). The **school subject was German**.  
