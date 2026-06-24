@@ -4,6 +4,11 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013  
 
+**New project!**  
+//24.06.2026,1:32pm//  
+New project avable! Find it in my repository 📲"Engine-calculations"!  
+With this project you can calculate the horse power (hp) of internal combustion engines.  
+
 **New project soon🔜**  
 //23.06.2026, 4:35pm//  
 A new project will be here soon!👀  
