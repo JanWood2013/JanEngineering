@@ -4,6 +4,12 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013  
 
+**Mediaday in Spielperg**  
+//25.06.2026,4:03pm//  
+Today starts the Austrian GP Weekend with the Media Day.  
+At the Mediaday, the F1 teams analyse the track and conditions(And Walkover on the Track). They think over how they can optimise the car for the track (they can only work with the car from Friday) and often they are even thinking about or planing a strategy for the Race and Quallifying.  
+For the fans, Thursdays always is the Driver parade and the drivers guve special intervews for TV and other.  
+
 **New project!**  
 //24.06.2026,1:32pm//  
 New project avable! Find it in my repository 📲"Engine-calculations"!  
