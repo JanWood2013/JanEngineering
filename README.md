@@ -4,6 +4,11 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013  
 
+**Second project in 📲"Other"**  
+//26.06.2026, 1:52pm//  
+Use it to calculate kgf (kgf -> kilogram‑force and the same as kp -> kilopond) in N (Newton) or vice versa.  
+N is a quite important unit in F1 because they use it to acquire different 💪forces at the 🏎️car.  
+
 **New Repository**  
 //26.06.2026, 1:25pm//  
 A new Repository where I uploade different things which ar important but not very important.  
