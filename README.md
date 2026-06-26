@@ -4,6 +4,10 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013  
 
+**FP1 and 2 Today**  
+//26.06.2026, 11:54am//  
+The first day the F1 cars touch the track in Austria! 🏎️🗻  
+
 **Mediaday in Spielperg**  
 //25.06.2026,4:03pm//  
 Today starts the Austrian GP Weekend with the Media Day.  
