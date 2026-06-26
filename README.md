@@ -4,6 +4,11 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013  
 
+**New Repository**  
+//26.06.2026, 1:25pm//  
+A new Repository where I uploade different things which ar important but not very important.  
+It calls 📲"Other" and the first project is already there!  
+
 **FP1 and 2 Today**  
 //26.06.2026, 11:54am//  
 The first day the F1 cars touch the track in Austria! 🏎️🗻  
