@@ -2,7 +2,10 @@
 -------------------  
 I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
-🔗GitHub: https://github.com/JanWood2013  
+🔗GitHub: https://github.com/JanWood2013 
+
+**Russell takes pole in Austria!🏎️🗻**  
+//27.06.2026, 5:19pm//  
 
 **Qualliday in Austria!**  
 //27.06.2026,12:06am//  
