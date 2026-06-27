@@ -4,6 +4,10 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013  
 
+**Qualliday in Austria!**  
+//27.06.2026,12:06am//  
+Today we'll see who set pole in Spielberg!🏎️🗻  
+
 **Second project in 📲"Other"**  
 //26.06.2026, 1:52pm//  
 Use it to calculate kgf (kgf -> kilogram‑force and the same as kp -> kilopond) in N (Newton) or vice versa.  
