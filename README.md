@@ -4,6 +4,10 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Race Day in Austria!**  
+//28.06.2026, 9:29am//  
+Who'll be the best at the 📍RedBull Ring?  
+
 **Russell takes pole in Austria!🏎️🗻**  
 //27.06.2026, 5:19pm//  
 
