@@ -4,6 +4,11 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Sprint Qualli**  
+//03.07.2026, 2:24pm//  
+Today is a special event in F1!  
+The sprint qualli for Silverstone sprint tomorrow! 🏎️🇬🇧  
+
 **🎓School for F1**  
 //01.07.2026, 3:18pm//  
 I got the last classtest in **🔢Math** for this school year and **scored 27 of 28** points! This is a **1+** and the **best grade** in Germany!  
