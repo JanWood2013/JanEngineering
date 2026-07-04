@@ -4,6 +4,9 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Sprint and Qualli day in 🇬🇧**  
+//04.07.2026, 10:49am//  
+
 **Lewis Hamilton on sprint pole in Silverstone!🐎**  
 //03.07.2026, 6:26pm//  
 
