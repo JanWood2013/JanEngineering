@@ -4,6 +4,9 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Antonelli also takes pole in 🇬🇧**  
+//04.07.2026, 7:13pm//  
+
 **Antonelli wins the Sprint in Silverstone!**  
 //04.06.2026, 1:51pm//  
 
