@@ -10,7 +10,7 @@ and here I share you what I am doing for it!
 **Math for F1🔢**  
 //05.07.2026, 10:31am//  
 Who knows what this is? 👀  
-<img width="3024" height="4032" alt="image" src="https://github.com/user-attachments/assets/e6872c83-0031-4eac-a120-bf1fc494d7b7" />  
+<img width="500" height="300" alt="image" src="https://github.com/user-attachments/assets/e6872c83-0031-4eac-a120-bf1fc494d7b7" />  
 
 
 **Antonelli also takes pole in 🇬🇧**  
