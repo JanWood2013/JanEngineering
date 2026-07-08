@@ -2,7 +2,7 @@
 -------------------  
 I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
-(If an image should be strange, look at it in GitHub/My Profile/JanEngineering)  🔗GitHub: https://github.com/JanWood2013 
+(If an **image should be strange**, look at it in GitHub/My Profile/JanEngineering)  🔗GitHub: https://github.com/JanWood2013 
 
 **🎓School (and English) for F1**  
 //08.07.2026, 5:33pm//  
