@@ -2,8 +2,12 @@
 -------------------  
 I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
-(If an image should be strange, look at it in GitHub/My Profile/JanEngineering)  
-🔗GitHub: https://github.com/JanWood2013 
+(If an image should be strange, look at it in GitHub/My Profile/JanEngineering)  🔗GitHub: https://github.com/JanWood2013 
+
+**🎓School (and English) for F1**  
+//08.07.2026, 5:33pm//  
+I had to create a **presentation** about a country (i picked Canada) for an **oral exam in English** and I got a 1.  
+That's the **second best grade** in Germany (after 1+).  
 
 **CHARLES BACK ON TOP🏆🆑**  
 //05.07.2026, 7:57pm//  
