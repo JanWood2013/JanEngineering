@@ -4,6 +4,11 @@ I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
 (If an **image should be strange**, look at it in GitHub/My Profile/JanEngineering)  🔗GitHub: https://github.com/JanWood2013 
 
+**No F1 this weekend**  
+//10.07.2026, 3:53pm//  
+Sadly, tehre is no F1 race this weekend.  
+But instead of F1, the Goodwood festival of speed is this weekend (or week). The next F1 race is the Belgian GP next weekend! 🏎️  
+
 **🎓School (and English) for F1**  
 //08.07.2026, 5:33pm//  
 I had to create a **presentation** about a country (i picked Canada) for an **oral exam in English** and I got a 1.  
