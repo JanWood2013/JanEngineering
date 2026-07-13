@@ -5,6 +5,13 @@ and here I share you what I am doing for it!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Chess**  
+//13.07.2026, 5:46pm//  
+Have I told you I often play chess to improve my logical and strategic thinking.  
+Today was a chess tournament on my school (also with players from other schools in Cologne). I am going to tell you which place I am as soon as they are published.♟️  
+<img width="3024" height="3024" alt="image" src="https://github.com/user-attachments/assets/d29bb3dc-89c3-4030-a7ca-7cbe422dd909" />  
+<img width="3024" height="3024" alt="image" src="https://github.com/user-attachments/assets/6349ce1d-2fce-4588-8d32-7aef6f3956bd" />
+
 **Belgish GP week**  
 //13.07.2026, 9:19am//  
 F1 is Back on track with the Belgian GP this Weekend!🏎️  
