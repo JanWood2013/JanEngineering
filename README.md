@@ -2,7 +2,8 @@
 -------------------  
 I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing for it!  
-(If an **image should be strange**, look at it in GitHub/My Profile/JanEngineering)  🔗GitHub: https://github.com/JanWood2013 
+(If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
+🔗GitHub: https://github.com/JanWood2013 
 
 **Belgish GP week**  
 //13.07.2026, 9:19am//  
