@@ -5,6 +5,11 @@ and here I share you what I am doing for it!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**♟️Chess tournament results**  
+//14.07.2026, 3:40pm//  
+I finished the tournament on place 22 of 40. I played in the group from year 7 to year 11 (Germany). 
+I played with 9 minutes on the clock and two of 7 games are Chess960 (the row where you king is standing normally is randomised). I can't play this so I lost one of this two.  
+
 **Chess**  
 //13.07.2026, 5:46pm//  
 Have I told you I often play chess to improve my logical and strategic thinking yet?   
