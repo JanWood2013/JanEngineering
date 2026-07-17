@@ -5,6 +5,10 @@ and here I share you what I am doing for it!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**FP1 and FP2✅**  
+//17.07.2026, 6:21pm//  
+Free practise 1 and 2 are completed in Belgium
+
 **🎓Report card - School - Year 7 - Germany/NRW**  
 //17.07.2027//  
 <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/3c9cb66c-523a-4904-81bc-5cfca3046227" />  
