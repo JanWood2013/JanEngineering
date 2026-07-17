@@ -5,6 +5,15 @@ and here I share you what I am doing for it!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**🎓Report card - School - Year 7 - Germany/NRW**  
+//17.07.2027//  
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/3c9cb66c-523a-4904-81bc-5cfca3046227" />  
+This is my report card from **this school year** (Germany). 
+Here is a Table so you can **understand my grades** better:  
+**sehr gut** -> Excelent -> **best grade** you can get on a report card in Ger  
+gut -> good -> **second best grade** you can get on a report card in Ger  
+I dont have other grades (only the two best 😁) so I think this is enough.  
+
 **♟️Chess tournament results**  
 //14.07.2026, 3:40pm//  
 I finished the tournament on place 22 of 40. I played in the group from year 7 to year 11 (Germany).  
