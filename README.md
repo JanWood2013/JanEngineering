@@ -5,6 +5,11 @@ and here I share you what I am doing for it!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**The best part of the weekend ⬇️**  
+//18.07.2026, 4:15pm//  
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/c2f30ccd-fa13-43be-aae9-03ba489477b2" />  
+
+
 **Qualli day in Spa**  
 //18.07.2026, 11:28am//  
 
