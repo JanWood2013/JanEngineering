@@ -5,6 +5,9 @@ and here I share you what I am doing for it!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Qualli day in Spa**  
+//18.07.2026, 11:28am//  
+
 **FP1 and FP2✅**  
 //17.07.2026, 6:21pm//  
 Free practise 1 and 2 are completed in Belgium
