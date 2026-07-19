@@ -7,7 +7,7 @@ and here I share you what I am doing for it!
 
 **🎓Report card - School - Year 7 - Germany/NRW - Translated**  
 //19.07.2026, 9:31am//  
-I have **translated my report card** I showed you Friday with a **tanslation App** so everyone can read it⬇️  
+I have **translated my report card**, I showed you Friday, with a **tanslation app** so everyone can read it⬇️  
 (The original (in German) is still in the message from the 17.07.2026)  
 <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/d74ecd34-efa6-4a15-9e40-8395c2b0cfc8" />  
 Table of grades:  
