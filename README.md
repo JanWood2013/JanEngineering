@@ -5,6 +5,9 @@ and here I share you what I am doing for it!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Race day in Belgium!🏎️**  
+//19.07.2027, 12:20am//  
+
 **🎓Report card - School - Year 7 - Germany/NRW - Translated**  
 //19.07.2026, 9:31am//  
 I have **translated my report card**, I showed you Friday, with a **tanslation app** so everyone can read it⬇️  
