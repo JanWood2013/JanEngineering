@@ -5,6 +5,9 @@ and here I share you what I am doing for it!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**KIMI ANTONELLI WINS IN SPA!!🏎️🏆🏁**  
+//19.07.2026, 4:31pm//  
+
 **Race day in Belgium!🏎️**  
 //19.07.2027, 12:20am//  
 
