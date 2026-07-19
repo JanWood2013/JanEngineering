@@ -5,13 +5,22 @@ and here I share you what I am doing for it!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**🎓Report card - School - Year 7 - Germany/NRW - Translated**  
+//19.07.2026, 9:31am//  
+I have **translated my report card** I showed you Friday with a **tanslation App** so everyone can read it⬇️  
+(The original (in German) is still in the message from the 17.07.2026)  
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/d74ecd34-efa6-4a15-9e40-8395c2b0cfc8" />  
+Table of grades:  
+very good -> **best** grade  
+good -> **second best** grade
+
+
 **Kimi Antonelli takes pole in Spa!**  
 //18.07.2026, 5:12pm//  
 
 **The best part of the weekend ⬇️**  
 //18.07.2026, 4:15pm//  
 <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/c2f30ccd-fa13-43be-aae9-03ba489477b2" />  
-
 
 **Qualli day in Spa**  
 //18.07.2026, 11:28am//  
