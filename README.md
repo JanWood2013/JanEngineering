@@ -5,6 +5,11 @@ and here I share you what I am doing for it!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Engineering projects for F1**  
+//22.07.2026, 11:15am//  
+Look what I built👀. A system⚙️ which collects blackberries made with simple pieces nearly everybody has at home🏡.  
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/b0d17a12-7b52-465b-9d7c-e405108e5adc" />  
+
 **📍Hungary Race week!🏎️**  
 //20.07.2026, 1:43pm//  
 
