@@ -5,6 +5,10 @@ and here I share you what I am doing for it!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Media day**  
+//23.07.2026, 9:57am//  
+Today it's Thursday and Thursday = Mediaday. This weekend in Hungary  
+
 **Engineering projects for F1**  
 //22.07.2026, 11:15am//  
 Look what I built👀. A system⚙️ which collects blackberries made with simple pieces nearly everybody has at home🏡.  
