@@ -5,6 +5,12 @@ and here I share you what I am doing for it!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Coding for F1💻**  
+//24.07.2026, 4:03pm//  
+I've **started learning C++** (also a very important language for F1 because it's very fast and time is very important in F1).  
+I made progress and now I can **set up variables** (and calculate with it but only double and integer). I also can print text.  
+I'll create a repository where you can **see my progress**  
+
 **Practise 1 and 2 in Hungary🏎️🇭🇺**  
 //24.07.2026, 10:07am//  
 
