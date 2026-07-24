@@ -5,6 +5,9 @@ and here I share you what I am doing for it!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Practise 1 and 2 in Hungary🏎️🇭🇺**  
+//24.07.2026, 10:07am//  
+
 **Media day**  
 //23.07.2026, 9:57am//  
 Today it's Thursday and Thursday = Mediaday. This weekend in Hungary  
