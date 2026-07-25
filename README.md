@@ -5,6 +5,9 @@ and here I share you what I am doing for it!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Saturday -> Qualli day🏎️🇭🇺**  
+//25.07.2026, 3:35pm//  
+
 **Coding for F1💻**  
 //24.07.2026, 4:03pm//  
 I've **started learning C++** (also a very important language for F1 because it's very fast and time is very important in F1).  
