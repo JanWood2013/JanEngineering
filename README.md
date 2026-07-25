@@ -5,6 +5,9 @@ and here I share you what I am doing for it!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Lando Norris takes pole in Hungary!**  
+//25.07.2026, 5: 17pm//  
+
 **Every day progress**  
 //25.07.2026, 4:44pm//  
 <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/d38d1973-767c-4ddd-a763-dc7def705715" />  
