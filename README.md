@@ -1,14 +1,14 @@
 ***JanEngineering***
 -------------------  
 I want to be a race engineer in F1 (Formula 1)
-and here I share you what I am doing for it!  
+and here I share you what I am doing to get a job there!   
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
 **English for F1**  
 //27.07.2026, 9:11//  
 I've started to learn **Intermediate English** with Duolingo because I've already finished my "basic English course" (Score 130) and I want to **communicate even better** in English (this also benefits my F1 career).  
-Because of my Engish skills I already have I could start learning **Intermediate English at Score 80**.  
+Because of my Engish skills I already have I was able to start learning **Intermediate English at Score 80**.  
 Intermediate English:  
 <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/0180d927-ec7e-4b48-a892-1086f5dca58d" />  
 "Basic course":  
