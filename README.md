@@ -5,8 +5,22 @@ and here I share you what I am doing for it!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
-**Lando Norris takes pole in Hungary!**  
-//25.07.2026, 5: 17pm//  
+**English for F1**  
+//27.07.2026, 9:11//  
+I've started to learn **Intermediate English** with Duolingo because I've already finished my "basic English course" (Score 130) and I want to **communicate even better** in English (this also benefits my F1 career).  
+Because of my Engish skills I already have I could start learning **Intermediate English at Score 80**.  
+Intermediate English:  
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/0180d927-ec7e-4b48-a892-1086f5dca58d" />  
+"Basic course":  
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/787911d9-fd50-4aba-9a28-3ed54bb8f99f" />  
+
+**It's summer break in F1**  
+//27.07.2026, 9:10//  
+
+**Lando Norris wins in Hungary!🏆🏎️**  
+//27.07.2026, 9:10//  
+
+**Lando Norris takes pole in Hungary!**  //25.07.2026, 5: 17pm//  
 
 **Every day progress**  
 //25.07.2026, 4:44pm//  
