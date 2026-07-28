@@ -5,6 +5,11 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**C++**  
+//28.07.2027, 10:15am//  
+I’ve started to learn **vectors in C++**. 
+It’s a really important topic for F1, it’s summer break and I'm on vacation.  So I am going to use the time productive and do C++, Excel, Python and Math 💻🧮  
+
 **English for F1**  
 //27.07.2026, 9:11//  
 I've started to learn **Intermediate English** with Duolingo because I've already finished my "basic English course" (Score 130) and I want to **communicate even better** in English (this also benefits my F1 career).  
