@@ -5,6 +5,12 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Math for F1🧮**  
+//30.07.2026, 9:17am//  
+<img width="1819" height="1819" alt="image" src="https://github.com/user-attachments/assets/ed99c07e-920a-4940-a7d5-fe309dbeb597" />  
+Look what I’m doing👀! It’s a math competition like the BMO in England  
+
+
 **C++**  
 //28.07.2027, 10:15am//  
 I’ve started to learn **vectors in C++**. 
