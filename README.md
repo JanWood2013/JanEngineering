@@ -5,6 +5,11 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Vacation**  
+//31.07.2026, 7:07pm//  
+I'm on vacation right now. That's why I don't upload coding projects.  
+I am going to do a bit math (like you saw yesterday) and I'm going to be back with coding in 14 days.   
+
 **Math for F1🧮**  
 //30.07.2026, 9:17am//  
 <img width="1819" height="1819" alt="image" src="https://github.com/user-attachments/assets/ed99c07e-920a-4940-a7d5-fe309dbeb597" />  
