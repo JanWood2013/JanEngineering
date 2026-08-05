@@ -2,8 +2,13 @@
 -------------------  
 I want to be a race engineer in F1 (Formula 1)
 and here I share you what I am doing to get a job there!   
-(If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering)  
+(If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
+
+
+**Mechanical systems⚙️**  
+//05.08.2026, 9:29pm//  
+Just checked how a differential gear system works🏎️😎  
 
 **Vacation**  
 //31.07.2026, 7:07pm//  
