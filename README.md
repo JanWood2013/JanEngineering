@@ -1,6 +1,6 @@
 ***JanEngineering***
 -------------------  
-I want to be a race engineer in F1 (Formula 1)
+I want to be an race engineer in F1 (Formula 1)
 and here I share you what I am doing to get a job there!   
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
