@@ -17,7 +17,7 @@ I am going to do a bit math (like you saw yesterday) and I'm going to be back wi
 
 **Math for F1🧮**  
 //30.07.2026, 9:17am//  
-<img width="500" height="400" alt="image" src="https://github.com/user-attachments/assets/ed99c07e-920a-4940-a7d5-fe309dbeb597" />  
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/ed99c07e-920a-4940-a7d5-fe309dbeb597" />  
 Look what I’m doing👀! It’s a math competition like the BMO in England  
 
 
