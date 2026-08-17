@@ -5,6 +5,10 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**It’s Race week!!**  
+//17.08.2026, 4:49pm//  
+After a long break, F1 is back with the Dutch GP!🏎️🏁  
+
 **Excel**  
 //17.08.2026, 11:48am//  
 Just normal things…👀  
