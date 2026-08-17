@@ -5,6 +5,12 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Italian**  
+//17.08.2026, 10:05am//  
+Just started **learning Italian** with Duo! (Only a bit and a few times a week)  
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/46894edc-df3e-4da7-9411-3e360775a858" />  
+
+
 **Back at base**  
 //15.08.2026, 1:55pm//  
 Back at base and ready for progress!  
