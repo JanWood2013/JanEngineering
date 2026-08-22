@@ -5,6 +5,10 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**FROM POLE TO WIN!!**  
+//22.08.2026, 12:36am//  
+George Russell wins the first sprint after summer break!🏆🏎️  
+
 **Sprint and Quali**  
 //22.08.2026, 09:47am//  
 Full schedule at the Dutch GP!⏱️  
