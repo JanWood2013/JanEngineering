@@ -5,6 +5,12 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**New repository**  
+//23.08.2026, 11:39am//  
+Just created a new repo where I show you my c++ progress. It calls cpp.  
+My first two projects are already there!  
+Please write tips and tricks in the discussion.  
+
 **C++**  
 //23.08.2026, 11:22am//  
 Eevery day progress...  
