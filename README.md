@@ -5,6 +5,17 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Happy birthday Kimi Antonelli!!🥳🎂**  
+//25.08.2026, 11:32am//  
+Happy birthday Kimi!🎈🎊  
+I wish you a wonderful new year of life with many beautiful moments and a successful year in F1!  
+
+**New "trainig plan" for languages**  
+//25.08.2026, 11:23am//  
+I´ve just created a new "trainig plan" to improve my knowledge in different **languages**:  
+-**Monday-Friday**: Spanish on Duolingo, one Spanish podcast a day  
+-**Saturday & Sunday**: INtermediate English on Duolingo, one English podcast a day  
+
 **Lando wins in Zandvoort!🏆🏎️🏁**  
 //23.08.2026, 5:18pm//  
 
