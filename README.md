@@ -5,6 +5,11 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Just a bit chess…♟️**  
+//25.08.2026, 2:19pm//  
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/568c4354-3fa6-4f60-84e4-fe6e2a8cf379" />  
+
+
 **Happy birthday Kimi Antonelli!!🥳🎂**  
 //25.08.2026, 11:32am//  
 Happy birthday Kimi!🎈🎊  
