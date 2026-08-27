@@ -7,7 +7,7 @@ and here I share you what I am doing to get a job there!
 
 **iPad & PencilPro**  
 //27.08.2026, 19:31//  
-New **iPad + PencilPro** I use for school after holidays📱✏️  
+New **iPad** (air with M4) **+ PencilPro** I use for school after holidays📱✏️  
 <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/fe842bc1-3737-4f24-a994-500a223e7628" />  
 
 
