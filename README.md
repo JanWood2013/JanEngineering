@@ -6,7 +6,7 @@ and here I share you what I am doing to get a job there!
 🔗GitHub: https://github.com/JanWood2013 
 
 **Just a few notes for my engineering project (with electricity)**  
-//27.08.2026, 15:08//  
+//27.08.2026, 3:08pm//  
 I’ll explain and show the result later   <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/2385fa91-adc7-467d-b19d-6078b337fbe9" />  
 
 
