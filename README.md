@@ -5,6 +5,12 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**iPad & PencilPro**  
+//27.08.2026, 19:31//  
+New **iPad + PencilPro** I use for school after holidays📱✏️  
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/fe842bc1-3737-4f24-a994-500a223e7628" />  
+
+
 **Just a few notes for my engineering project (with electricity)**  
 //27.08.2026, 3:08pm//  
 I’ll explain and show the result later   <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/2385fa91-adc7-467d-b19d-6078b337fbe9" />  
