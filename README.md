@@ -19,7 +19,8 @@ New **iPad** (air with M4) **+ PencilPro** I use for school after holidays📱�
 
 **Just a few notes for my engineering project (with electricity)**  
 //27.08.2026, 3:08pm//  
-I’ll explain and show the result later   <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/2385fa91-adc7-467d-b19d-6078b337fbe9" />  
+I’ll explain and show the result later  
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/2385fa91-adc7-467d-b19d-6078b337fbe9" />  
 
 
 **Just a bit chess…♟️**  
