@@ -5,6 +5,12 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**New Project soon🔜**  
+//28.08.2026, 12:45am//  
+I am going to share a new project in "lap time analytics" soon.  
+It´s build with python and python libraries because I need to fresh up my python skills.  
+(Of course I´ll notify you when I finished it)  
+
 **iPad & PencilPro**  
 //27.08.2026, 19:31//  
 New **iPad** (air with M4) **+ PencilPro** I use for school after holidays📱✏️  
