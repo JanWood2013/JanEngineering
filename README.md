@@ -5,6 +5,10 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**It’s race week in Italy!🏎️🇮🇹**  
+//01.09.2026, 14:08//  
+(Please no DNF Kimi…)  
+
 **3 Days to go until holidays are over**  
 //30.08.2026, 3:04pm//  
 
