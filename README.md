@@ -173,7 +173,7 @@ Look what I built👀. A system⚙️ which collects blackberries made with simp
 //19.07.2026, 9:31am//  
 I have **translated my report card**, I showed you Friday, with a **tanslation app** so everyone can read it⬇️  
 (The original (in German) is still in the message from the 17.07.2026)  
-<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/d74ecd34-efa6-4a15-9e40-8395c2b0cfc8" />  
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/5b9d5a5b-f8ff-429d-b8db-49fe8f8afd60" />   
 Table of grades:  
 very good -> **best** grade  
 good -> **second best** grade
