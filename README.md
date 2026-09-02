@@ -5,8 +5,13 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**First day of the new school year completed!**  
+//02.09.2026, 2:39pm//  
+Just three subjects today!  
+Art - History - PE🎓    
+
 **It’s race week in Italy!🏎️🇮🇹**  
-//01.09.2026, 14:08//  
+//01.09.2026, 2:08pm//  
 (Please no DNF Kimi…)  
 
 **3 Days to go until holidays are over**  
