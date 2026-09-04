@@ -5,6 +5,9 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Media day in Italy!🎤**  
+//04.09.2026, 7:46am//  
+
 **Lego league “Future edition” kits arrived at my school today**  
 //03.09.2026, 6:22pm//  
 <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/f5b7c856-345f-4bca-b1fa-f9b61e86e92e" />  
