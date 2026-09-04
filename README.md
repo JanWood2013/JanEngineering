@@ -12,7 +12,7 @@ Monza is a high speed circuit, Mercedes has the fastest car in the field (so the
 Especially because McLaren and Ferrari are getting more dangerous every race it is better to take the penalty as long as Mercedes has the big lead and the fastest car.  
 This is the main idea why Kimi takes his penalty at his home GP Monza.  
 
-**Media day in Italy!🎤**  
+**FP1 and 2 in Italy!🏎️🇮🇹**  
 //04.09.2026, 7:46am//  
 
 **Lego league “Future edition” kits arrived at my school today**  
