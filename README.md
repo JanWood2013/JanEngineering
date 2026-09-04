@@ -5,6 +5,13 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Kimi Antonelli takes his power unit penalty in Italy! Why?⬇️**  
+//04.09.2026, 12:32am//  
+We all know Kimi isn’t happy about his penalty at his home GP but actually Monza is the perfect place to take it.  
+Monza is a high speed circuit, Mercedes has the fastest car in the field (so they have a Chance to get some points) and they have a big lead in both championships.  
+Especially because McLaren and Ferrari are getting more dangerous every race it is better to take the penalty as long as Mercedes has the big lead and the fastest car.  
+This is the main idea why Kimi takes his penalty at his home GP Monza.  
+
 **Media day in Italy!🎤**  
 //04.09.2026, 7:46am//  
 
