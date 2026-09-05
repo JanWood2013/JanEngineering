@@ -5,6 +5,10 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**GASLY TAKES POLE IN ITALY!🏎️🇮🇹**  
+//05.09.2026, 5:06pm//  
+The first pole position for Gasly and Alpine this year!  
+
 **Qualli day in Italy!🏁🏎️**  
 //05.09.2026, 09:51//  
 
