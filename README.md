@@ -5,6 +5,9 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Qualli day in Italy!🏁🏎️**  
+//05.09.2026, 09:51//  
+
 **Kimi Antonelli takes his power unit penalty in Italy! Why?⬇️**  
 //04.09.2026, 12:32am//  
 We all know Kimi isn’t happy about his penalty at his home GP but actually Monza is the perfect place to take it.  
