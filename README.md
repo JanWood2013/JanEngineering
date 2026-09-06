@@ -5,6 +5,9 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**KIMI ANTONELLI WINS HIS HOME GP!!!🇮🇹🏎️🏁**  
+//06.09.2026, 4:57pm//  
+
 **Just a bit excel until race…**  
 //06.09.2026, 1:47pm//  
 <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/b542373c-1a24-4f5d-b9ed-253d150f72c7" />  
