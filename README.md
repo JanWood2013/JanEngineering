@@ -5,6 +5,10 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Just a bit excel until race…**  
+//06.09.2026, 1:47pm//  
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/b542373c-1a24-4f5d-b9ed-253d150f72c7" />  
+
 **It’s race day!!🏎️🏁🇮🇹**  
 //06.09.2026, 8:29am//  
 Is Gasly able to win after an incredible performance yesterday?  
