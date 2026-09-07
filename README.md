@@ -5,6 +5,10 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**It’s race week again!🇪🇸🏎️**  
+//07.09.2026, 3:47pm//  
+The next GP takes place in 📍Madrid for the first time!  
+
 **KIMI ANTONELLI WINS HIS HOME GP!!!🇮🇹🏎️🏁**  
 //06.09.2026, 4:57pm//  
 
