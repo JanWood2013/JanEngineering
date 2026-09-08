@@ -5,6 +5,11 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Just engineered a pencil with a 📷**  
+//08.09.2026, 1:18pm//  
+You can use the data to set up an ai which can show what you wrote in a txt file  
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/53ec61e4-2a79-4696-8aa3-37277a8d7e91" />  
+
 **It’s race week again!🇪🇸🏎️**  
 //07.09.2026, 3:47pm//  
 The next GP takes place in 📍Madrid for the first time!  
