@@ -5,6 +5,9 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Media day in Madrid!🎤**  
+//10.09.20206, 6:21pm//  
+
 **Just engineered a pencil with a 📷**  
 //08.09.2026, 1:18pm//  
 You can use the data to set up an ai which can show what you wrote in a txt file  
