@@ -5,6 +5,9 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Norris takes pole in Madrid!!**  
+//12.09.2026, 7:10pm//  
+
 **It’s Quali day in Madrid🏎️🏁**  
 //12.09.2026, 11:46am//  
 
