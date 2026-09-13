@@ -5,6 +5,9 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**KIMI ANTONELLI WINS IN MADRID!**  
+//13.09.2026, 5:19pm//  
+
 **It’s race day at the Madring!**  
 //12.09.2026, 9:34am//  
 Who’ll win the fist GP at the Madring?  
