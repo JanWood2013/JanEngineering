@@ -5,6 +5,11 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**It’s race day at the Madring!**  
+//12.09.2026, 9:34am//  
+Who’ll win the fist GP at the Madring?  
+I’m watching!👀  
+
 **Norris takes pole in Madrid!!**  
 //12.09.2026, 7:10pm//  
 
