@@ -5,6 +5,11 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Classical mechanic: in progress…**  
+//17.09.2026, 3:02pm//  
+**Every morning** one video and after that I **write down** every important thing and repeat it every second day  
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/92d49e27-d36f-4225-b0f6-8e58e670e415" />  
+
 **German homework🎓📚**  
 //15.09.2026, 3:56pm//  
 <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/a0fe6188-2400-4268-b6ae-63287e52fdd6" />  
