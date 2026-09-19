@@ -281,7 +281,7 @@ Free practise 1 and 2 are completed in Belgium
 
 **🎓Report card - School - Year 7 - Germany/NRW**  
 //17.07.2027//  
-<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/3c9cb66c-523a-4904-81bc-5cfca3046227" />  
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/6fcd236d-7594-4061-966e-ae6ab6a4a8be" />  
 This is my report card from **this school year** (Germany). 
 Here is a Table so you can **understand my grades** better:  
 **sehr gut** -> Excelent -> **best grade** you can get on a report card in Ger  
