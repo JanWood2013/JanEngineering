@@ -5,6 +5,9 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Media day in Baku!**  
+//23.09.2026, 7:00am//  
+
 **Classical mechanic: in progress…**  
 //17.09.2026, 3:02pm//  
 **Every morning** one video and after that I **write down** every important thing and repeat it every second day  
