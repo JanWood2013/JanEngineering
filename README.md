@@ -5,6 +5,12 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Telemetry = The best thing!**  
+//26.09.2026, 2:28pm//  
+I can’t watch this race so I analyse the Telemetry (Kimi & George)  
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/dc77a6aa-4e4c-46dc-9f34-5765f2043f15" />  
+
+
 **Vectors C++**  
 //26.09.2026, 8:34//  
 <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/5b68a949-7266-4d1c-98ca-e33ce8c5f5d8" />  
