@@ -5,6 +5,12 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**First experience with vectors(C++)**  
+//28.09.2026, 7:24pm//  
+**After a few weeks of studying** I made my first experience with vectors in C++!  
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/62a24b0c-5e58-45a9-93af-3ebb6a4b5053" />  
+
+
 **Telemetry = The best thing!**  
 //26.09.2026, 2:28pm//  
 I can’t watch this race so I analyse the Telemetry (Kimi & George)  
