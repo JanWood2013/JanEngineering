@@ -5,6 +5,10 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**It’s Race week again!!**  
+//29.09.2026, 3:52pm//  
+The Baku GP in Malaysia!  
+
 **First experience with vectors(C++)**  
 //28.09.2026, 7:24pm//  
 **After a few weeks of studying** I made my first experience with vectors in C++!  
