@@ -5,6 +5,9 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Its‘s media day in Sepang!**  
+//01.10.2026, 10:15am//  
+
 **It’s Race week again!!**  
 //29.09.2026, 3:52pm//  
 The Baku GP in Malaysia!  
