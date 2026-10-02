@@ -5,6 +5,10 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**It’s Friday again!!**  
+//02.10.2026, 1:48pm//  
+You all know what that means…   
+
 **Its‘s media day in Sepang!**  
 //01.10.2026, 10:15am//  
 
