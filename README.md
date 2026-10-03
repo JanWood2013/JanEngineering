@@ -5,6 +5,9 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Qualli day in Baku (Sepang)**  
+//03.10.2026, 9:58am//  
+
 **It’s Friday again!!**  
 //02.10.2026, 1:48pm//  
 You all know what that means…   
