@@ -5,6 +5,9 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**It’s race day in Sepang!!**  
+//04.10.2026, 8:14am//  
+
 **Max on Pole in Malaysia!!**  
 //03.10.2026, 11:30am//  
 
