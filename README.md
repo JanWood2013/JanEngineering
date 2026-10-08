@@ -5,6 +5,9 @@ and here I share you what I am doing to get a job there!
 (If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Media day in Singapore**  
+//08.10.2026, 09:57am//  
+
 **Race week in Singapore!!**  
 //07:21, 07.10.2026//  
 
