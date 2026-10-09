@@ -1,9 +1,12 @@
 ***JanEngineering***
 -------------------  
 I want to be an race engineer in F1 (Formula 1)
-and here I share you what I am doing to get a job there!   
-(If an **image looks strange**, look for it on GitHub/My Profile/JanEngineering, time and date = my local time zone (Germany))  
+and I share you what I am doing to get a job here!   
+(time and date = my local time -> Germany)  
 🔗GitHub: https://github.com/JanWood2013 
+
+**Max on sprint pole!!**  
+//09.10.2026, 4:07pm//  
 
 **Media day in Singapore**  
 //08.10.2026, 09:57am//  
