@@ -5,6 +5,9 @@ and I share you what I am doing to get a job here!
 (time and date = my local time -> Germany)  
 🔗GitHub: https://github.com/JanWood2013 
 
+**Max won the sprint yesterday and is on Pole!!**  
+//11.10.2026, 10:30am//  
+
 **Max on sprint pole!!**  
 //09.10.2026, 4:07pm//  
 
